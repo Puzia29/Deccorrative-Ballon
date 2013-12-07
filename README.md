@@ -13,14 +13,14 @@ Everyone
 
 ---
 #Overall
-Let's make berrmacam decoration of colorful balloons and such.
+Let us create a variety of colorful balloon decorations and such.
 Turning balloons into flowers is a very simple but original way to create decorations for the perfect little princess party or an afternoon tea with a garden theme. Or maybe you just want to find a way to brighten your best girlfriend’s day with a small token of appreciation––a bunch of balloon flowers will make her smile! If you want to know how to make decorative balloon flowers that are guaranteed to be the highlight of your party or day, just follow these steps.
 Brighten your day ~ ~
 
 
 ---
 #Educational Effect
-* Students are able to create an interesting shape balloon
+* We are able to create an interesting shape balloon
 
 ---
 #Item/Material/System
